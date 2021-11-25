@@ -26,3 +26,13 @@
 
 ![HUAWEI Cloud 13](https://user-images.githubusercontent.com/93165498/143444730-20e3b9ed-5287-40c2-b53e-8c214d464623.jpg)
 
+![HUAWEI Cloud 14](https://user-images.githubusercontent.com/93165498/143444747-590adc1f-8c05-44bd-9463-d90f5a945952.jpg)
+
+![HUAWEI Cloud 15](https://user-images.githubusercontent.com/93165498/143444775-21b079c7-f304-445e-abbc-d4ccccb7c278.jpg)
+
+![HUAWEI Cloud 16](https://user-images.githubusercontent.com/93165498/143444801-1613f569-31b7-4c30-8e9d-9c08830780ad.jpg)
+
+![HUAWEI Cloud 17](https://user-images.githubusercontent.com/93165498/143444825-3303d669-e993-4cc0-8fec-403afa862c13.jpg)
+
+![HUAWEI Cloud 18](https://user-images.githubusercontent.com/93165498/143444837-be147843-7ecc-48e5-8678-59061c5a2729.jpg)
+
