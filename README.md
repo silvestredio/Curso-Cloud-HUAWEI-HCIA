@@ -54,4 +54,5 @@
 
 ![HUAWEI Cloud 27](https://user-images.githubusercontent.com/93165498/143445266-e6af11ac-5924-47c1-90d3-276bec053572.jpg)
 
+![HUAWEI Cloud 28](https://user-images.githubusercontent.com/93165498/143445493-64156256-e827-4a8c-b1ef-775ba51afbfe.jpg)
 
