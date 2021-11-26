@@ -96,5 +96,7 @@
 
 ![HUAWEI Cloud 48](https://user-images.githubusercontent.com/93165498/143598885-2aa11335-a560-4c86-b038-0eaf07f84a77.jpg)
 
+![HUAWEI Cloud 49](https://user-images.githubusercontent.com/93165498/143598898-c6f684bf-ebff-4d48-a2a0-ce5954660830.jpg)
 
+![HUAWEI Cloud 50](https://user-images.githubusercontent.com/93165498/143598910-a80d20fa-8a74-43cf-9ef3-4e1d8d077138.jpg)
 
