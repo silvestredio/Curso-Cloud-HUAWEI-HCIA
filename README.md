@@ -122,5 +122,7 @@
 
 ![HUAWEI Cloud 61](https://user-images.githubusercontent.com/93165498/143599354-bae77ce8-61fb-437e-9f2e-8fc7d755ed02.jpg)
 
+![HUAWEI Cloud 62](https://user-images.githubusercontent.com/93165498/143599365-395e27aa-1c34-41e1-93ca-c62b3af865a9.jpg)
+
 
 
